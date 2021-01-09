@@ -1,0 +1,1 @@
+# Hackintosh-Intel-i7-10700K-MSI-Z490-Gaming-Edge-MATX
